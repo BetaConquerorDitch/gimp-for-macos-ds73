@@ -1,4 +1,4 @@
-
+Get the ultimate Gimp for macOS brush with ultimate Brushes for Gimp for macOS - vector tools and gradient maps. Featuring vector tools and gradient maps, it's the best choice for
 
 
 
